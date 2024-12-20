@@ -1,1 +1,0 @@
-# Yakobinets.github.io
